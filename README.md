@@ -11,7 +11,7 @@ The precision and durability of PTFE tape make it indispensable in:<br>
 MANXPOWER PTFE Tape is manufactured with premium-grade polytetrafluoroethylene, providing excellent tensile strength and resistance to wear. This ensures that joints remain tightly sealed under extreme conditions.<br>
 <li><b>2. Chemical and Temperature Resistance</b></li><br>
 The tape offers outstanding resistance to chemicals, moisture, and temperature fluctuations, making it ideal for environments where corrosion and thermal stress are common.<br>
-<li><b>3. Reliable in Critical Safety Systems</b></li>
+<li><b>3. Reliable in Critical Safety Systems</b></li><br>
 For fire safety systems, reliability is non-negotiable. MANXPOWER PTFE Tape ensures leak-free performance, safeguarding the integrity of systems like sprinklers, hydrants, and gas suppression pipelines.<br>
 <li><b>4. Easy to Apply</b></li><br>
 Its smooth, flexible design allows for quick and easy application, saving time during installation or maintenance while delivering a professional-grade seal.<br>
