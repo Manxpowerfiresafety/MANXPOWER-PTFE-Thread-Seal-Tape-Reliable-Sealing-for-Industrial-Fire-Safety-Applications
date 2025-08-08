@@ -1,0 +1,1 @@
+# MANXPOWER-PTFE-Thread-Seal-Tape-Reliable-Sealing-for-Industrial-Fire-Safety-Applications
